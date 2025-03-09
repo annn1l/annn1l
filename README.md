@@ -1,5 +1,5 @@
 ![MasterHead](https://media.discordapp.net/attachments/1341827080974897234/1348297443179102270/2.jpg?ex=67cef358&is=67cda1d8&hm=fe99c2d25acfc4a9e74eb0a3eaf82fdcdfa9539c5205a49374ee8362b812784a&=&format=webp&width=1860&height=346)
-Merhaba 👋 Ben annn1l
+Heyy Selam Ben annn1l 👋 
 =======================
 
 Tasarımcıyım
